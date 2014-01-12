@@ -2,4 +2,4 @@
 
 ### Organize Home Projects
 
-Stuff to get done in 2014. 
+Get stuff done in 2014. 
